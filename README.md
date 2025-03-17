@@ -1,8 +1,6 @@
 # Brandon Kennedy  
 **Founder & CEO, Two Presidents LLC**
 
-![Profile Banner](./assets/banner.png)
-
 ---
 
 ### 👨‍💻 About Me
