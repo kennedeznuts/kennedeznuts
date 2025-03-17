@@ -40,10 +40,10 @@
 
 ### 📩 Contact  
 
-- **Email:** [Your Email Here]  
-- **Website:** [Your Website Here]  
-- **LinkedIn:** [Your LinkedIn Profile]  
-- **Phone:** (925) 693-8133  
+- **Email:** presidentsllc1224@gmail.com
+- **Website:** https://www.2-presidents.com
+- **LinkedIn:**   
+- **Phone:** +1 (925) 693-8133
 
 ---
 
